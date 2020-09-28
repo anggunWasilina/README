@@ -1,3 +1,3 @@
 # HEY
 
-aku anggun
+anggun gak paham
